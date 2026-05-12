@@ -1,4 +1,4 @@
-# 
+# Enhance WizTree for PC | WizTree for Windows with WizTree for PC | WizTree for Windows advanced Extension: folder-scanning & tree-view, the #1 extension. Includes folder-scanning
 
 
 
